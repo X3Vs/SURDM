@@ -9,7 +9,7 @@
 ## Takes 30 minutes to set everything up - see your business growing while just watching your terminals 📊
 
 
-## Purchase now: [@surreal09](https://t.me/surreal09)
+## Purchase now: [@akiaura07](https://t.me/akiaura07)
 ## Main channel: [@discordaio](https://t.me/discordaio)
 
 
